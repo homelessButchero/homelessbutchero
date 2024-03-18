@@ -2,7 +2,7 @@
 <p align='center'><img src='https://i.postimg.cc/rFZ1fZtW/skfjsdkfsdklfsdkfjdsklfjdsklfjsd.png'/></p>
 <p align='center'>osdd-1b ⋮ bodily 15 <i><s>(16 on july 17, 2024)</i></s></p>
 <p align='center'>we collectively use the name randal but preferred you use the name of whoevers fronting ⋮ they/them in a plural sense
-<p align='center'>ask whos fronting we dont mind at all</p>
+<p align='center'>ask whos fronting</p>
 <p align='center'>frequent fronters: <a href="https://pronouns.cc/@homelessButcher/Kankri">kankri</a>, <a href="https://pronouns.cc/@homelessButcher/Mituna">mituna</a>, <a href="https://pronouns.cc/@homelessButcher/Three">three</a>, <a href="https://pronouns.cc/@homelessButcher/Destroyer">destroyer</a>, <a href="https://pronouns.cc/@homelessButcher/Dave">dave</a>
 <p align='center'> <a href="https://linktr.ee/sugar.youth">our moirail</a> </p>
 <p align='center'> current hyperfixations: homestuck, ranfren, weezer</p>
